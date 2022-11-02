@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @SamiNaqvi
+- 👀 I’m interested in enhancing my coding skills, and learning day by day!
+- 🌱 I’m currently learning python, java, and C.
+- 💞️ I’m looking to collaborate on creative and unique projects.
+- 📫 How to reach me ... can reach me on any of my social my ig is @saminaqvi_
